@@ -10,3 +10,4 @@ You can click the Preview link to take a look at your changes.
 --->
 Hi,
 I'm Putta Nageswara Reddy, having 7+ years real time experience in project code development and currently working as Technical Lead.
+Below are the team members as effective and dedicative team players.
